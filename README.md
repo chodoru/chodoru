@@ -3,7 +3,7 @@
 - 🌱 I'm currently learning everything
 - 💞️ I’m looking for joy in life (neverending pilgrimage)
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: live laugh love
+# 🫀😆💌 live laugh love
 
 <!---
 chodoru/chodoru is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
