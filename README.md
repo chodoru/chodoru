@@ -1,5 +1,5 @@
 - 👋 Hi, I’m chodoru :3
-- 👀 I love bugs and coding
+- 👀 I love insects, bugs and coding <3
 - 🌱 I'm currently learning everything
 - 💞️ I’m looking for joy in life (neverending pilgrimage)
 - 😄 Pronouns: he/him
